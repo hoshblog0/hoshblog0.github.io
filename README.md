@@ -1,0 +1,1 @@
+# hoshblog0.github.io
